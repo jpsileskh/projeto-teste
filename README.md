@@ -1,3 +1,3 @@
 # projeto-teste
-GTA VI jogo do
-Zelda nao arruma nada com GTA
+GTA VII jogo do ano de 2050
+Zelda jogo do ano ameaça GTA
